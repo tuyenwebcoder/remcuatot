@@ -1,4 +1,4 @@
-Rèm gỗ - rèm sáo gỗ là loại <a href="http://remcuatot.com" title="rèm cửa">rèm cửa</a> thích hợp để làm Rèm văn phòng - Rèm cửa sổ - Rèm cửa ra vào - Rèm cửa có vách kính. 
+Rèm gỗ - rèm sáo gỗ là loại rèm cửa thích hợp để làm Rèm văn phòng - Rèm cửa sổ - Rèm cửa ra vào - Rèm cửa có vách kính. 
 
 Rèm gỗ được làm bằng gỗ thiên nhiên. Các lá mành gỗ rất tiện lời là có thể  lật ngang , lật dọc hoặc kéo gọn lên trên , rất linh hoạt đối với mành rèm . 
 
